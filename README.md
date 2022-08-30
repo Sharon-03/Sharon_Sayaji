@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Sharon Sayaji
 - 👀 I’m interested in Coding and Development.
-- 🌱 I’m currently purduing COmputer SCience Engineering.
+- 🌱 I’m currently pursuing Computer SCience Engineering.
 - 💞️ I’m looking forward to become successful in my career.
 - 📫 
 
